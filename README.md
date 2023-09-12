@@ -13,3 +13,5 @@ my favorite cartoons:
 
 1. 📙 **진격의거인**
 2. 📙 **슬램덩크**
+
+thank u for readings
