@@ -1,4 +1,6 @@
-I am junsoo kim, my major is computerscience and my grade is sophomore in university.
+# **Hello**😸
+
+I am junsoo kim, 22years old, my major is computerscience and my grade is sophomore in university.
 
 I like movies, japanese cartoons. Let me introduce movies,cartoons what i like.
 
